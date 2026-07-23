@@ -56,8 +56,4 @@ Haekyung was as beautiful, strong, and kind as ever, but… the more time we spe
 
 &nbsp;
 
-</details>
-
-&nbsp;
-
 ## TOC
