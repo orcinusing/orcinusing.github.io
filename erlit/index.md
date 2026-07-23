@@ -15,7 +15,7 @@ Written by 미지호
 
 **※ The ideas expressed in this work do not reflect the author’s personal beliefs.**
 
- 
+&nbsp;
 
 “In the Romance White Book, entry 107 states, ‘Every romance leaves its trace.’”
 
