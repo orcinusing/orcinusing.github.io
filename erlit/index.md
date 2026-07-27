@@ -67,3 +67,6 @@ Haekyung was as beautiful, strong, and kind as ever, but… the more time we spe
 - [Side Track 1](https://orcinusing.github.io/2026/07/23/erlit004.html)
 - [Side Track 2](https://orcinusing.github.io/2026/07/23/erlit005.html)
 - [2](https://orcinusing.github.io/2026/07/23/erlit006.html)
+- [Side Track 3](https://orcinusing.github.io/2026/07/23/erlit007.html)
+- [3](https://orcinusing.github.io/2026/07/23/erlit008.html)
+- [Side Track 4](https://orcinusing.github.io/2026/07/23/erlit009.html)
